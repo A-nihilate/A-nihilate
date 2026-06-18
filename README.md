@@ -2,6 +2,7 @@
 
 I am a biginner Programer, 3D modeler and Game Developer, i am a starter at Java and Luau, Learning how to 3D Model from Scrach, and developing a game at Roblox!
 
+Software I use/Have experience with: InteliJ IDEA, Roblox Studio, Blender, Photoshop, Maya, Zbrush.
 
 I am currently working on a Boss Rush Game as a Modeler and Designer, tho i want to get into Scripting soon;
 
@@ -16,20 +17,12 @@ My nick will always be something like "Annihilate", not that hard to find if you
 
 Pronouns: dont care
 
-fun facts: i like games! such as: Factorio, Ultrakill, Doom Eternal, Limbus Company, Lobotomy Corporation, Terraria, Minecraft, Hollow Knight (Silksong too), The binding of Issac, Bloons TD6, Rimworld, DontStarve, Skyrim, Roblox (Grave/Digger; Creatures Of Sonaria; TDX; TDS; TBZ; Blackout:Revival; Industrialist), Revolution Idle, AND WAY MORE!
 
-Software I use/Have experience with: InteliJ IDEA, Roblox Studio, Blender, Photoshop, Maya, Zbrush.
-<!--
-**A-nihilate/A-nihilate** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+fun facts:
+i like games! such as: Factorio, Ultrakill, Doom Eternal, Limbus Company, Lobotomy Corporation, Terraria, Minecraft, Hollow Knight (Silksong too), The binding of Issac, Bloons TD6, Rimworld, DontStarve, Skyrim, Roblox (Grave/Digger; Creatures Of Sonaria; TDX; TDS; TBZ; Blackout:Revival; Industrialist), Revolution Idle, AND WAY MORE!
 
-Here are some ideas to get you started:
+I am a nerd Sometimes, I like lore, making lore, math for some reason and discussing about Lore, Programing and Game Desing!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I hate when people look at my stuff and just say "It's Cool!", I WANT YOU TO SAY WHAT ISNT GOOD, PLEASE, IF I DONT KNOW WHAT'S WRONG, HOW CAN I FIX IT?????
+
+Always be proud of what you made, if it's Bad, dont be sad, learn what makes it bad, and try again.
