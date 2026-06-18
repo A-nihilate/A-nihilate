@@ -25,4 +25,9 @@ I am a nerd Sometimes, I like lore, making lore, math for some reason and discus
 
 I hate when people look at my stuff and just say "It's Cool!", I WANT YOU TO SAY WHAT ISNT GOOD, PLEASE, IF I DONT KNOW WHAT'S WRONG, HOW CAN I FIX IT?????
 
+
+
+
+heh... text wall...
+
 Always be proud of what you made, if it's Bad, dont be sad, learn what makes it bad, and try again.
