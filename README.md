@@ -8,7 +8,7 @@ Deeply interested in complex problem-solving, mechanical efficiency, and expansi
 
 Focused on developing engaging, responsive combat mechanics and encounter design and fun Gameplay Loops (inspired by titles like Grave/Digger and Ultrakill).
 
-Software I use/Have experience with: IntelliJ IDEA, Roblox Studio, Blender, Photoshop, Maya, ZBrush.
+Software I use/Have experience with: IntelliJ IDEA, Roblox Studio, Blender, Photoshop, Maya, ZBrush, NetBeans.
 
 I am currently working on a Boss Rush Game as a Modeler and Designer, though I want to get into Scripting soon;
 
