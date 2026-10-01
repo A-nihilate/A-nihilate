@@ -26,14 +26,11 @@ Pronouns: don't care
 
 fun facts:
 I like games! such as: Factorio, Ultrakill, Doom Eternal, Limbus Company, Lobotomy Corporation, Terraria, Minecraft, Hollow Knight (Silksong too), The Binding of Isaac, Bloons TD6, RimWorld, Don't Starve, Skyrim, Roblox (Grave/Digger; Creatures Of Sonaria; TDX; TDS; TBZ; Blackout:Revival; Industrialist), Revolution Idle, AND WAY MORE!
+I like to play games not only to have fun, but also to learn new things.
 
 I am a nerd Sometimes, I like lore, making lore, math for some reason and discussing about Lore, Programming and Game Design!
 
 I hate when people look at my stuff and just say "It's Cool!", I WANT YOU TO SAY WHAT ISN'T GOOD, PLEASE, IF I DON'T KNOW WHAT'S WRONG, HOW CAN I FIX IT?????
 
-
-
-
-heh... text wall...
 
 Always be proud of what you made, if it's Bad, don't be sad, learn what makes it bad, and try again.
